@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on current projects
 - 📫 How to reach me: +2349018709503
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a poet
+- ⚡ Fun fact: I'm an ambivert
 
 <!---
 Emmzie101/Emmzie101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
